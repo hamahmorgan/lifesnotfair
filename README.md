@@ -29,3 +29,5 @@ PHONE SMASHES - a pause and nervousness creeps. I think I said that right?
 1 inch away from her face "NO LITTLE LADY - DON'T BE SNIPPY WITH ME! (attempts to appolog......) SHUT UP! SHUT UP! SHUT UP!" the chef de cuisine YELLS at her in rage. leaves in a huff. 
 
 The room fills with this moment. At least 3 of us women realize what just happened. Froze. 
+
+https://www.glamour.com/story/verbal-abuse-men-who-scream-at-work
