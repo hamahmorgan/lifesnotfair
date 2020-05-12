@@ -1,4 +1,5 @@
-# lifesnotfair
+#B.S.
+
 the attempt to write about the frustrations keeping me awake at night
 
 # Raymonds 
